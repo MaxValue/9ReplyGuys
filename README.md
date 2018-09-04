@@ -16,3 +16,4 @@ This project hosts a website which helps you with replying to those comments wit
 ## Project History
 This project was created because I (Max) thought that this could be useful to a lot of people.
 I got the idea for this from [this tweet](https://twitter.com/sbarolo/status/1036685010869407744).
+All credits go to [Scott Barolo](https://twitter.com/sbarolo/) and [shrew](https://twitter.com/shrewshrew). Of course, if they want this taken down, I will take it down, but I highly doubt that will happen.
