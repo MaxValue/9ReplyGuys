@@ -6,6 +6,7 @@ Did you just make a statement online and somebody replies with a typical comment
 This project hosts a website which helps you with replying to those comments with a fitting answer.
 
 ## Roadmap
+
 - [] Make website
 - [] Make styling
 - [] Make cards explaining the types
