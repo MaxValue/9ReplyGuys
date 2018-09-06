@@ -11,6 +11,8 @@
 # [The Life Coach](https://twitter.com/sbarolo/status/1036686389604241410)
 Also known as "Victim Blaming", "Free Advice" or "You Got This".
 
+Whatever issues you are discussing, he knows that your attitude is the real problem here!
+
 ## Typical Comments
 * I would have shouted "NO" and kicked his butt! It's easy!
 * Dress more like a scientist & men won't be tempted
@@ -24,6 +26,27 @@ Demands solutions from the victims.
 
 ## Warning!
 You may also hear this from women.
+
+## What he actually should do
+* Stop replying, start listening
+
+# [The Tone Police](https://twitter.com/sbarolo/status/1037052674158604289)
+Also known as "Civility Patrol" or "Oh My Delicate Male Ears".
+
+## Typical Comments
+* How rude! Now me must postpone all discussion of your experiences until you can make me feel comfortable
+* You seem upset. Perhaps you aren't able to handle rational discourse
+* If you get angry, they win
+* The mouth on you! No wonder u got harassed
+* Name calling is hardly productive, madam
+* Piling on this guy isn't helpful. I bet he learned his lesson and was probably misunderstood
+* Such nasty vitriol! All I did was calmly point out that women are irrational & unfit to do science
+
+## The Problem
+Male comfort is priority #1
+
+## Warning!
+Will call you a bitch eventually
 
 ## What he actually should do
 * Stop replying, start listening
