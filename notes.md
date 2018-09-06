@@ -50,3 +50,27 @@ Will call you a bitch eventually
 
 ## What he actually should do
 * Stop replying, start listening
+
+# [The Gaslighter](https://twitter.com/sbarolo/status/1037373627442900992)
+Also known as "The Male Interpreter", "Manecdotes" or "Walk It Off".
+
+What’s the big deal anyway?
+
+## Typical Comments
+* Something similar happened to a man once, therefore you didn't experience sexism
+* His INTENTIONS were good. It's a compliment
+* He never assaulted women in front of me!
+* I need to know the exact context or I'll assume you've blown this out of proportion
+* He's just an old-school gentleman from a different culture with a hands-on mentoring style
+* Sexism is just an old man problem. When they all retire everything will be better!
+* If sexism was *that* common I would have noticed
+* And by the way, she's no saint either
+
+## The Problem
+It's not that bad. And if it is, you deserve it
+
+## Warning!
+He's already decided to ignore your response
+
+## What he actually should do
+* Stop replying, start listening
