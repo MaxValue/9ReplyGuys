@@ -99,3 +99,27 @@ All talk, no action
 
 ## What he actually should do
 * Stop replying, start listening
+
+# [Himpathy](https://twitter.com/sbarolo/status/1038128825215987712)
+Also known as "Witch Hunt", "Whatabout" or "Oh the huMANity".
+
+He's worried that with all this talk about #MeToo we're losing sight of the real victims: him and his friends.
+
+## Typical Comments
+* Too many profs are being fired due to unsubstantiated rumors with no due process!! No I can't NAME any
+* If we start holding men responsible for their actions, where will it end?
+* She's just claiming harassment to get ahead, and he is suffering for it
+* We can't start protecting women until you can prove that nothing bad will ever happen to a man EVER
+* I'm afraid to work with women now :(
+* He is really going through a lot, the rules are changing, it's hard out there
+* Censorship! Why can't I say whatever comes into my mind while everyone walks on eggshells around me
+* If you keep this up, men will stop hitting on women at work and the human race will go extinct
+
+## The Problem
+Only men are real to him
+
+## Warning!
+Dangerous when cornered
+
+## What he actually should do
+* Stop replying, start listening
