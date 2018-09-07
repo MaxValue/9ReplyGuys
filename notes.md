@@ -1,12 +1,8 @@
-1. The Life Coach				(blue)
-2. Tone Police					(yellow)
-3. The Gaslighter				(violet)
-4. Cookie Manster				(blue)
-5. Himpathy						(yellow)
-6. The Sealion					(violet)
-7. The Mansplainer				(blue)
-8. The Prestige					(yellow)
-9. Trolls, Creeps & Fools		(violet)
+1. [The Life Coach](#the-life-coach)				(blue)
+2. [Tone Police](#tone-police)					(yellow)
+3. [The Gaslighter](#the-gaslighter)				(violet)
+4. [Cookie Manster](#cookie-manster)				(blue)
+5. [Himpathy](#himpathy)						(yellow)
 
 # [The Life Coach](https://twitter.com/sbarolo/status/1036686389604241410)
 Also known as "Victim Blaming", "Free Advice" or "You Got This".
