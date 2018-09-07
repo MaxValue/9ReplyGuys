@@ -74,3 +74,28 @@ He's already decided to ignore your response
 
 ## What he actually should do
 * Stop replying, start listening
+
+# [Cookie Manster](https://twitter.com/sbarolo/status/1037778658595942400)
+Also known as "#notallmen", "I Love Women" or "Mommy Look!".
+
+He's such a nice guy.
+
+(He might actually be a nice guy, which makes it hard to call this out. So here's a tweet to help.)
+
+## Typical Comments
+* I haven't harassed women to my knowledge, where's my lifetime achievement award
+* Not all men do bad things! My gf says I'm amazing
+* In faculty meeting somebody made a sexist remark & I thought to myself "that is so messed up"
+* Hey did you see we gave a woman an award? Yeah it feels pretty good to do charity
+* Some workplaces have problems with sexism but my mentees and I are BFFs ❤️❤️❤️ #coolboss
+* If I am pro-women how could my behavior ever be sexist? CHECKMATE
+* I am interested in being an all ally! Someone give me permission please 😃
+
+## The Problem
+It's not about you, buddy
+
+## Warning!
+All talk, no action
+
+## What he actually should do
+* Stop replying, start listening
