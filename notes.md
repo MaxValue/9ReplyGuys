@@ -3,6 +3,7 @@
 3. [The Gaslighter](#the-gaslighter)				(violet)
 4. [Cookie Manster](#cookie-manster)				(blue)
 5. [Himpathy](#himpathy)						(yellow)
+6. [The Sealion](#the-sealion)					(violet)
 
 # [The Life Coach](https://twitter.com/sbarolo/status/1036686389604241410)
 Also known as "Victim Blaming", "Free Advice" or "You Got This".
@@ -116,6 +117,28 @@ Only men are real to him
 
 ## Warning!
 Dangerous when cornered
+
+## What he actually should do
+* Stop replying, start listening
+
+# [The Sealion](https://twitter.com/sbarolo/status/1038524364881317890)
+Also known as "Just Asking Questions (JAQass)" or "Data Dude".
+
+Hey, he's just asking questions.
+
+## Typical Comments
+* Would you answer my endless bad-faith questions, which I could easily google on my own, with a little less attitude please?
+* If you don't respond to me, you're admitting I'm right. If you DO respond to me, this never ends
+* Pics or it didn't happen. Statistics or it didn't happen. Your testimony is unreliable solely because you are female.
+* Why won't you repeat all the details of your painful harassment story on demand and post all the evidence?
+* Is there even evidence that harrassment exists? I mean numbers, not some ANECDOTE
+* The burden is on you to waste time disproving my wild unsupported claims. Then I'll deny I ever said it. Ready?
+
+## The Problem
+Data won't convince him anyway
+
+## Warning!
+Only wants to exhaust you & get the last word
 
 ## What he actually should do
 * Stop replying, start listening
