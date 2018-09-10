@@ -4,6 +4,7 @@
 4. [Cookie Manster](#cookie-manster)				(blue)
 5. [Himpathy](#himpathy)						(yellow)
 6. [The Sealion](#the-sealion)					(violet)
+7. [The Mansplainer](#the-mansplainer)				(blue)
 
 # [The Life Coach](https://twitter.com/sbarolo/status/1036686389604241410)
 Also known as "Victim Blaming", "Free Advice" or "You Got This".
@@ -139,6 +140,28 @@ Data won't convince him anyway
 
 ## Warning!
 Only wants to exhaust you & get the last word
+
+## What he actually should do
+* Stop replying, start listening
+
+# [The Mansplainer](https://twitter.com/sbarolo/status/1038896351231258626)
+Also known as "Well Actually", "You're Welcome" or "It Is Known".
+
+The internet is about sharing information, whether you want it or not.
+
+## Typical Comments
+* Ah, I see you are interested in X, [person who has studied X for 20 years]! I have researched it all morning and it's more complex than you'd think. For instance did you know
+* No you didn't technically ask for advice, but a woman stating a fact is a cry for help
+* Your ideas were debunked years ago by a guy named... I think it starts with an F? Look it up, dummy
+* I notice you wear makeup. I thought you said you were a feminist. True feminism, you see [is wrong for 5 tweets]
+* There are many common misconceptions about what actually constitutes 'mansplaining'
+* I have something better than a degree in your field: a truly logical mind. Weep as I shatter your paradigms
+
+## The Problem
+He's just a soul whose intentions are good
+
+## Warning!
+Oh lord, please don't let him be misunderstood
 
 ## What he actually should do
 * Stop replying, start listening
